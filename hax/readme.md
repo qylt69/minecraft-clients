@@ -1,1 +1,4 @@
-tu mate vsekty clienty co mam no ratky 
+here are all my safe clients 
+
+
+
